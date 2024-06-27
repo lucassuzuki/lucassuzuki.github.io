@@ -1,2 +1,2 @@
 # lucassuzuki.github.io
-Portifólio Lucas Suzuki
+Portfólio Lucas Suzuki
